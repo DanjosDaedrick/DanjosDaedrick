@@ -1,8 +1,8 @@
--oi meu nome é Danjos-daedrick
--tenho interese em animes e desenhar 
--estou estudando alemão 
+-oi meu nome é Danjos-daedrick 🩸
+-tenho interese em animes e desenhar 🗾
+-estou estudando alemão ⚰️
 -nao sei 
-- @danjos-daedrick
+-@danjos-daedrick 
 
 <!---
 DanjosDaedrick/DanjosDaedrick is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
